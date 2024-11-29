@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Ferd0nan
 - 👀 I’m interested in ..
 - 🌱 I’m currently learning ..
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on pakupelec
 - 📫 How to reach me .
 - 😄 Pronouns: ..
 - ⚡ Fun fact: .999232u7dh

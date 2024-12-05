@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ..poivcrygu
 - 💞️ I’m looking to collaborate on pakupelec
 - 📫 How to reach me .
-- 😄 Pronouns: ..uijhtgrfsedfgh
+- 😄 Pronouns: ...ijejisiofpg
 - ⚡ Fun fact: .999tyhytersgrshg
 Ferd0nan/Ferd0nan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.

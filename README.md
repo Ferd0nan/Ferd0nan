@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ferd0nan
 - 👀 I’m interested in ..
-- 🌱 I’m currently learning ..rbfrdrfv
+- 🌱 I’m currently learning ..rbgtfresferf
 - 💞️ I’m looking to collaborate on pakupelec
 - 📫 How to reach me .
 - 😄 Pronouns: ...ijejisiofpg

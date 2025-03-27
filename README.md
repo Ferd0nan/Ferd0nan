@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Ferd0nan
 - 👀 I’m interested in ..
 - 🌱 I’m currently learning ..jtyukmyfgjnndt
-- 💞️ I’m looking to collaborate on furtyuyijl/ugytyugb
+- 💞️ I’m looking to collaborate on hergbostgbh
 - 📫 How to reach me .
 - 😄 Pronouns: ...ihydtjytdu
 - ⚡ Fun fact: .999tyhytersgrshg

@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ferd0nan
 - 👀 I’m interested in ..
-- 🌱 I’m currently learning ..lvifruiyuoiglouyfuvbhgyfoufv
+- 🌱 I’m currently learning ..e35ygw5tsrhbzyk6iyyrth
 - 💞️ I’m looking to collaborate on zj,bgsj[
 - 📫 How to reach me .
 - 😄 Pronouns: ...ihydtjytdu
